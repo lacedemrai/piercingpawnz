@@ -1,6 +1,6 @@
 # piercingpawnz
 
-<p align="center"> <img width="542" height="73" alt="1000009917" src="https://github.com/lacedemrai/piercingpawnz/issues/1#issue-4810704984" />
+<p align="center"> <img width="542" height="73" alt="1000009917" src="https://github.com/lacedemrai/piercingpawnz/blob/058c608fb8367baad859ae67262d976339826ae4/580543495-8cb0d65f-17e2-468a-8007-313e0e970e7e.jpg" />
 
 
 
