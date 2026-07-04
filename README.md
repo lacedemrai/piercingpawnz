@@ -26,4 +26,4 @@ cudd　 　୭　　 hide 　 ♪ 　　　𓈒⠀⠀⠀freely..⠀
 
 
 
-<img width="542" height="66" alt="1000009918" src="https://github.com/lacedemrai/piercingpawnz/issues/1#issuecomment-4883952300" />
+<img width="542" height="66" alt="1000009918" src="https://github.com/lacedemrai/piercingpawnz/blob/6715013a6d2392b1f2d5334588de3f9fee7566f3/580544353-669c0dd0-550c-43c4-9cfc-f7eb635aee31.jpg" />
