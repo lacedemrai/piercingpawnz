@@ -15,10 +15,6 @@
 
 <div align="center">
 
-         
-  
-  
-  
   𓂃 ﹒ ⠀ ᛝ⠀⠀tavi / kim⠀⠀｡⠀♡　　𝜗℘ . minor ﹒ 𓎢𓎟  
 <div align="center"> 𓏴 ﹒he 𓂋 any ࿐ ⠀⠀
 
