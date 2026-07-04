@@ -28,12 +28,11 @@
 
        
 
-no copy or inspo . . 𐂯 ⠀⠀⠀enfp
+<div align="center"> no copy or inspo . . 𐂯 ⠀⠀⠀enfp
 
 
        
-
-cudd　 　୭　　 hide 　 ♪ 　　　𓈒⠀⠀⠀freely..⠀
+<div align="center"> cudd　 　୭　　 hide 　 ♪ 　　　𓈒⠀⠀⠀freely..⠀
 
 
 
